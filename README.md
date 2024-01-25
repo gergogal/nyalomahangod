@@ -2,6 +2,6 @@
 ### halo  
 **csao**  
 felsorolás:  
--xd  
--xddddd  
+- xd  
+- xddddd  
 [XDDDDDDDDDD](XD.com)
